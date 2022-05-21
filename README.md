@@ -1,5 +1,7 @@
 # Baked Beans、The Crops Farmer、The Farmer House、BSCFOMO、BNB Miner等加密货币ROI项目源码
 
+案例：https://www.richmandao.com/
+
 合作方式：
 
 1、我做盘，你做市场，对你来说零投资。
